@@ -71,3 +71,23 @@ https://xxavs.com/api.php/provide/vod/
 
 
 https://slapibf.com/api.php/provide/vod/
+
+
+https://api.souavzyw.net/api.php/provide/vod/at/json/
+
+
+https://hsckzy888.com/api.php/provide/vod/at/json/
+
+
+https://jp98.vip/api.php/provide/vod/
+
+
+https://ckbh1.xyz/api.php/provide/vod/?ac=list
+
+
+https://ckzy.me/api.php/provide/vod/
+
+
+http://fhapi9.com/api.php/provide/vod/
+
+
